@@ -1,1 +1,0 @@
-# ismailtakhmanovcard.io
